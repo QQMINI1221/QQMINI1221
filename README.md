@@ -2,7 +2,7 @@
 - 👀 I’m interested in Playing Games
 - 🌱 I’m currently learning SEO
 - 💞️ I’m looking to collaborate on games
-- 📫 How to reach me [MINI1221](https://www.snibbeinteractive.com/)
+- 📫 How to reach me [MINI1221](https://www.snibbeinteractive.com/) and [SLOT212](https://www.rr1221hoki.com/)
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
